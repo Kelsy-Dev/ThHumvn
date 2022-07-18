@@ -1,4 +1,4 @@
-- 👋 Hi, I’m **@ThHumvn**
+- 👋 Hi, I’m **Kelsy**
 - 👀 I’m interested in **Web3**
 - 🌱 I’m currently learning **Web development**
 
